@@ -32,7 +32,7 @@ Dhaka International University
 
 ## 📧 Contact
 If you have any queries or suggestions, feel free to reach out:
-`tohidulrupok@gmail.com`
+`tohidrupok@gmail.com`
 
 ---
 
